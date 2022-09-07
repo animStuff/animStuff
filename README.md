@@ -1,0 +1,3 @@
+### Hi there 👋
+I'm animStuff would like to be working as a data scientist in the future, at this moment I'm working on a few things to learn about the field
+open to new projects and techniques, Would lovee to work with people to gain experience....
